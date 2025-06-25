@@ -1,2 +1,2 @@
 # aula24/06/25
-
+![urso dançando](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbnJkY2xtNG0xZmJ1bndhZDMydzZoNGduZ2gwbGowNmk1b2EydXJpeSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tsX3YMWYzDPjAARfeg/giphy.gif)
